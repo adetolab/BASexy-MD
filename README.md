@@ -7,7 +7,7 @@ Use help to know ❤️💯
                    
            
 
-                  Whatsapp Bot By Dreadfully Judgmental
+                   Dreadfully Judgmental🐦✨
 ---
 <div align='center'>
   
